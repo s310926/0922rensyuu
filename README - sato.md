@@ -1,3 +1,3 @@
 # 0922rensyuu
 pushの練習
-がんばるぞ!!!aiueo
+がんばるぞ!!!aiueo0922
